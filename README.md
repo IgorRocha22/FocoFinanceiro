@@ -1,0 +1,1 @@
+Foco Financeiro é um aplicativo de finanças pessoais projetado para ajudar usuários a tomar o controle completo de suas finanças de forma simples e eficaz. Com uma interface intuitiva e recursos poderosos, o Foco Financeiro permite que você gerencie seu dinheiro com confiança e clareza.
